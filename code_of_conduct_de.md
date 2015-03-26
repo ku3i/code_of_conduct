@@ -15,7 +15,7 @@ Wir haben große und komplexe Ziele; es gibt immer mehr zu lernen innerhalb der 
 
 Wenn du einen Beitrag zu unseren gemeinsamen Zielen machst, sei immer gewillt, Anderen zu erklären, was du vorhast, wie es funktioniert. Nur so können andere darauf aufbauen und daran arbeiten, Dinge zu ändern und zu bewegen.
 
-## Sei prägnant
+## Fasse dich kurz
 
 Was du beiträgst, kommt vielen zugute. Je prägnanter und präziser du deine Gedanken formulierst, umso einfacher wird es Anderen fallen, deinen Beitrag zu verstehen. Sei bereit, deine Absichten so einfach wie möglich zu vermitteln.
 
